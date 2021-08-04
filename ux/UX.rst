@@ -146,13 +146,13 @@ work. Here are some we admire, and why.
 -  `TWG <https://twg.io>`__ - Great services page, 
 `very clear <https://twg.io/services/>`__. Agile, fellow Canadian.
 
-Top google results for "Web Application Firm" and "Web Software Firm".
+Top google results for "microsoft power bi consulting services" and "microsoft power bi consulting".
 This means they have pretty effective SEO/copy.
 
 -  `CoResolutions <https://coresolutions.ca/>`__
 -  `SCNSoft <https://www.scnsoft.com/>`__
+-  `BeyondIntranet <https://www.beyondintranet.com/>`__
 -  `Falcon Software <http://www.falcon-software.com/>`__
-
 Top company identified on clutch.io, Canada (that we actually like)
 
 -  `Lift Interactive <https://liftinteractive.com/>`__ -
